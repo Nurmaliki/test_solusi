@@ -17,5 +17,5 @@ Terimakasih
 
 
 *******************
-Apabila ada kenda bisa hubungi saya 084713460593
+Apabila ada kendala bisa hubungi saya 084713460593
 *******************
